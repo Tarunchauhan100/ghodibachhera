@@ -1,6 +1,6 @@
 # PRIVACY POLICY
 
-Last Updated: [04 09 2026]
+Last Updated: [04 09 2026] 
 Effective Date: [03 09 2026]
 Privacy Policy Version: 1.0
 
